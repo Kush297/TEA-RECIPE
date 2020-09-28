@@ -1,0 +1,1 @@
+Take a pan and add half cup of water and half a cup milk ,let the two come to a boiling piont then add one tea spoon of sugar n a two tea spoons of tea leaves.let the whole mix boil foe 10 min on slow flame . once its done then strain it in a kettle and enjoy it with some cookies.
